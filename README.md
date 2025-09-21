@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **Html, Python and JavaScript**<br>
 
-- 📫 How to reach me **aishwaryaa.j23@gmail.com**<br>
+- 📫 How to reach me **aishwaryaa.j2205@gmail.com**<br>
 
 - ⚡ Fun fact **I think I am good comic sense**<br>
 
